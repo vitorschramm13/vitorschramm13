@@ -2,7 +2,7 @@
 
 
 any pronouns,
-coursing java Entra21 on FURB,
+majored in java Entra21 on FURB,
 interested in learn C#, C+ and C++,
 discord: frogye#7128,
 Curiosidade: Quero desenvolver jogos
